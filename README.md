@@ -1,6 +1,6 @@
 # Polymarket Referral Code
 
-Use referral code: RIGHTWAY
+Use referral code: **RIGHTWAY**
 
 👉 [[Sign up with referral link]](https://polymarket.com/?r=rightway)
 ## What is Polymarket?
